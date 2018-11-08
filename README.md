@@ -1,5 +1,11 @@
-Link do Site: https://rxbr2018.alliancechallenges.com/
-Regulamento: https://renaultexperience.com.br/regulamento_renault_experience.pdf
+Link do Site: 
+https://rxbr2018.alliancechallenges.com/
+
+PDF Business Model Canvas:
+http://brazil.enactusglobal.org/wp-content/uploads/sites/2/2017/01/Business-Model-Generation.pdf
+
+Regulamento: 
+https://renaultexperience.com.br/regulamento_renault_experience.pdf
 
 Videos:
 https://endeavor.org.br/desenvolvimento-pessoal/o-que-os-negocios-sociais-tem-a-ensinar/?gclid=EAIaIQobChMIydjS0PXR3QIVFgSRCh2djQjaEAAYASAAEgIT8vD_BwE
