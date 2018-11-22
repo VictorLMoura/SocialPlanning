@@ -24,3 +24,5 @@ http://www.blogsenacsp.com.br/negocios-sociais/
 https://www.gazetadopovo.com.br/economia/empreender-pme/negocios-que-mudam-o-mundo-podem-chegar-a-r-50-bilhoes-ate-2020-dzia2bq9aezwgaimggeanatl2/
 
 https://www.yunusnegociossociais.com/o-que-so-negcios-sociais
+
+DADOS SOBRE OFICINAS MECANICAS NO BRASIL: https://www.oficinabrasil.com.br/noticia/mercado-cinau/dimensoes-do-mercado-de-reposicao-quem-somos-onde-estamos-e-quanto-representamos 
